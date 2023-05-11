@@ -9,4 +9,4 @@ Author: Santiago Pampillo
 
 I’m [Santiago Pampillo](https://www.linkedin.com/in/santiagopampillo/), a Product Director with over a decade of experience delivering cool projects.
 
-**[Follow me](www.linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=santiagopampillo) as we explore the tech landscape, learn valuable tips and tricks, and stay updated with the latest trends!** 🚀
+**[Follow me](www.linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=santiagopampillo) as we explore the tech landscape, learn valuable tips and tricks, and stay updated with the latest trends!** 🚀🚀🚀
